@@ -1,4 +1,4 @@
-#  
+#  secure minecraft Script is the best minecraft Script, featuring unlimited stamina and teleport. Safe and powerful for all your needs.
 
 
 
